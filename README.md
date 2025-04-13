@@ -1,1 +1,1 @@
-My Publications and List of seom of them.
+My Publications and List of some of them.
