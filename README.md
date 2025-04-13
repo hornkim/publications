@@ -1,1 +1,1 @@
-Publications and List of some of them.
+Some Publications and List of some.
